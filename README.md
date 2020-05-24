@@ -1,1 +1,0 @@
-# UTS_CS2_4C, NAMA : Amir Hamzah, NIM: 18090073, KELAS:4C;
